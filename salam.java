@@ -2,9 +2,3 @@ ssss
 sss
 asdqwe
 qwezujzu
-zuřžtr
-zhjft
-rwerw
-sdfafwea
-qweqwe
-qweqweqwe
