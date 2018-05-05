@@ -3,7 +3,3 @@ dfgrdrfg
 ertertgfh
 sdejfhbsdhfbshgdfb
 hkjsdabikjhsadfbhkjfd
-!qwe
-hkjbsdf
-ikjhkjbh
-vhjhjuh
