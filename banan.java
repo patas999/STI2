@@ -3,15 +3,3 @@ banan
 eqweqwe
 qwerqwerqwer
 egrsdfrwtftfrdezfrgter
-fdtg
-er
-sd
-g
-sfd
-gwer
-z
-jet
-řh
-rg
-er
-fgre
