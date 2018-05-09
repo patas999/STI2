@@ -3,10 +3,3 @@ asdasdasd
 bsdfsdfa
 asdasdasd
 asdasd
-rwerwer
-qweqweqwe
-qweqweqweqweqwe
-swrewer
-fwerwersdfsdf
-lajksdhasjdha
-wqeqweasdasd
