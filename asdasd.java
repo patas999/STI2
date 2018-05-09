@@ -7,6 +7,3 @@ wertqwerwqer
 sdfsdf
 as
 df
-asdf
-qqweqweqwe
-rtzrtz
